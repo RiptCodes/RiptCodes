@@ -8,6 +8,6 @@
 - This code describes me and I would like to come back to this in a few years to add the code I have learned. Something I can say at the age of 16 is that I am very behind on my code and I am willing to do whatever I can to make my code better. Tuitions would help <3 If you have a community for me on discord or any socials then just tell me bcause I would like to imrpove fast. 
 Future me, hope you got into your dream uni :) 
 <!---
-This code describes me and I would like to come back to this in a few years to add the code I have learned. Something I can say at the age of 16 is that I am very behind on my code and I am willing to do whatever I can to make my code better. Tuitions would help <3 If you have a community for me on discord or any socials then just tell me bcause I would like to imrpove fast. 
+This code describes me and I would like to come back to this in a few years to add the code I have learned. Something I can say at the age of 16 is that I am very behind on my code and I am willing to do whatever I can to make my code better. Tuitions would help <3 If you have a community for me on discord or any socials then just tell me bcause I would like to improve fast. 
 Future me, hope you got into your dream uni :) 
 --->
